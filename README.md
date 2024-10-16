@@ -1,1 +1,1 @@
-ramdom things lol, Batch-Muti-Tool elboa man.zip is ebloa man's file. his profile: https://github.com/EbolaMan-YT , his Batch-Muti-Tool repositorie link: https://github.com/EbolaMan-YT/Batch-Multi-Tool
+ramdom things lol, Batch-Muti-Tool elboa man.zip is ebloa man's file. his profile: https://github.com/EbolaMan-YT , his Batch-Muti-Tool repositorie link: https://github.com/EbolaMan-YT/Batch-Multi-Tool , go to updated-ramdom-things branch for updated files delete th 4.bat after download in main branch.
